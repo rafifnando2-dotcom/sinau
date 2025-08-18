@@ -1,0 +1,2 @@
+# sinau
+pokok e sinau
